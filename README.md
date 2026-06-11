@@ -1,4 +1,4 @@
-## H# 💫 About Me:
+💫 About Me:
 🔭i am currently working on messager. <br>💻student of SamIT Global. <br>🌍from Uzbekistan.<br>👤16 y.o
 
 
